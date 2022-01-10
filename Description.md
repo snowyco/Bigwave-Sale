@@ -1,4 +1,4 @@
-# ミカヅキBIGWAVE – 星空Romantic (Nega Variant) : $170
+# ミカヅキBIGWAVE – 星空Romantic (Nega Variant) : $170 (PENDING)
 The vinyl itself is in good quality, however the sleeve has seen better days. I sadly got it like this, with these weird streak marks and some damage on the back.
 
 ![](https://i.ibb.co/1v0MQ09/20220110-121357.jpg)
