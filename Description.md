@@ -29,7 +29,7 @@ This one is sealed, with more noticeable bumps on the bottom corners.
 ![](https://i.ibb.co/JQPj5fT/20220110-124226.jpg)
 ![](https://i.ibb.co/dcwqS5C/20220110-124225.jpg)
 
-# ミカヅキBIGWAVE – 魔法戦線 METROPOLIS​.​exe (Neon Pink Variant : $80
+# ミカヅキBIGWAVE – 魔法戦線 METROPOLIS​.​exe (Neon Pink Variant) : $80
 This one is sealed, with no bumps on the corners.
 
 ![](https://i.ibb.co/K2NH32z/20220110-121116.jpg)
