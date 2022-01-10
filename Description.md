@@ -1,5 +1,4 @@
-# ミカヅキBIGWAVE – 星空Romantic
-testeststst
+# ミカヅキBIGWAVE – 星空Romantic : $170
 
 ![](https://i.ibb.co/1v0MQ09/20220110-121357.jpg)
 ![](https://i.ibb.co/Bt5gh73/20220110-121433.jpg)
