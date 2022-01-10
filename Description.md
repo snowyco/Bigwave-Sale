@@ -21,7 +21,7 @@ This one is sealed, with more noticeable bumps on the bottom corners.
 ![](https://i.ibb.co/SvKwKzh/20220110-121247.jpg)
 ![](https://i.ibb.co/PzzQvFw/20220110-121301.jpg)
 
-# ミカヅキBIGWAVE – わたしの小さなGalaxy (Picture Disk) : $80
+# ミカヅキBIGWAVE – わたしの小さなGalaxy (Picture Disk) : $80 (Pending)
 This one is sealed, with more noticeable bumps on the bottom corners.
 
 ![](https://i.ibb.co/3T2BBzc/20220110-121150.jpg)
