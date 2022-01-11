@@ -1,5 +1,11 @@
 # Everything has a $5 flat rate for shipping.
 
+# ミカヅキBIGWAVE – 魔法戦線 METROPOLIS​.​exe (Neon Pink Variant) : $80
+This one is sealed, with no bumps on the corners.
+
+![](https://i.ibb.co/K2NH32z/20220110-121116.jpg)
+![](https://i.ibb.co/kMBp669/20220110-121105.jpg)
+
 # ミカヅキBIGWAVE – 星空Romantic (Nega Variant) : $OLD
 The vinyl itself is in good quality, however the sleeve has seen better days. I sadly got it like this, with these weird streak marks and some damage on the back.
 
@@ -30,9 +36,3 @@ This one is sealed, with more noticeable bumps on the bottom corners.
 ![](https://i.ibb.co/JQJgm7r/20220110-121156.jpg)
 ![](https://i.ibb.co/JQPj5fT/20220110-124226.jpg)
 ![](https://i.ibb.co/dcwqS5C/20220110-124225.jpg)
-
-# ミカヅキBIGWAVE – 魔法戦線 METROPOLIS​.​exe (Neon Pink Variant) : $80
-This one is sealed, with no bumps on the corners.
-
-![](https://i.ibb.co/K2NH32z/20220110-121116.jpg)
-![](https://i.ibb.co/kMBp669/20220110-121105.jpg)
