@@ -15,7 +15,7 @@ This one is sealed, with a slight corner bump on the bottom right.
 ![](https://i.ibb.co/VgWH05z/20220110-121329.jpg)
 ![](https://i.ibb.co/0CZQjvc/20220110-121339.jpg)
 
-# ミカヅキBIGWAVE – Cutie Dance 音楽 (Picture Disk) : $120 (Pending)
+# ミカヅキBIGWAVE – Cutie Dance 音楽 (Picture Disk) : $OLD
 This one is sealed, with more noticeable bumps on the bottom corners.
 
 ![](https://i.ibb.co/KqDXJsH/20220110-121215.jpg)
