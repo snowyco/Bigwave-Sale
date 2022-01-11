@@ -1,3 +1,5 @@
+# Everything has a $5 flat rate for shipping.
+
 # ミカヅキBIGWAVE – 星空Romantic (Nega Variant) : $OLD
 The vinyl itself is in good quality, however the sleeve has seen better days. I sadly got it like this, with these weird streak marks and some damage on the back.
 
