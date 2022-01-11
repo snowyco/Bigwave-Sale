@@ -7,7 +7,7 @@ The vinyl itself is in good quality, however the sleeve has seen better days. I 
 ![](https://i.ibb.co/j4dX1FT/20220110-121529.jpg)
 ![](https://i.ibb.co/F7PYv0r/20220110-121547.jpg)
 
-# ミカヅキBIGWAVE – わたしのYume Diary (Picture Disk) : $60
+# ミカヅキBIGWAVE – わたしのYume Diary (Picture Disk) : $60 (Pending)
 This one is sealed, with a slight corner bump on the bottom right.
 
 ![](https://i.ibb.co/VgWH05z/20220110-121329.jpg)
